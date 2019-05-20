@@ -5,3 +5,6 @@ Chinese tea culture is a culture of making tea and drinking tea in China. As one
 If you have any questions about the tea collection, please contact: lanpo91357139@yeah.net
 
 Use chaji - enjoy life
+![image](https://github.com/xianshijie/chajishangjiaduan/blob/master/%E5%9B%BE%E7%89%87/%E7%94%BB%E6%9D%BF%201.png)
+![image](https://github.com/xianshijie/chajishangjiaduan/blob/master/%E5%9B%BE%E7%89%87/%E7%94%BB%E6%9D%BF%202.png)
+![image](https://github.com/xianshijie/chajishangjiaduan/blob/master/%E5%9B%BE%E7%89%87/%E7%94%BB%E6%9D%BF%203.png)
